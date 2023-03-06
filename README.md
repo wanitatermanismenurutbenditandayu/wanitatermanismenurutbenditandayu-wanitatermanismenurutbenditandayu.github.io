@@ -1,2 +1,2 @@
-# wanitatermanismenurutbenditandayu-wanitatermanismenurutbenditandayu.github.io
+# wanitatermanismenurutbenditandayu.github.io
 wanitatermanismenurutbenditandayu
