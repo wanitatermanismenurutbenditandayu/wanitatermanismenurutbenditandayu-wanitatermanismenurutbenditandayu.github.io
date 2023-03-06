@@ -1,0 +1,2 @@
+# wanitatermanismenurutbenditandayu-wanitatermanismenurutbenditandayu.github.io
+wanitatermanismenurutbenditandayu
